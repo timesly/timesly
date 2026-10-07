@@ -25,7 +25,16 @@ ${\textsf{\color{#A2CCF1}ㅤ٫٫ ㅤㅤ ˖ Ი𐑼ㅤ۫ㅤ ㅤㅤ ˖ㅤ}}$ <br>
    <summary>${\textsf{\color{#7B9EF4}ㅤ𓎟𓎟ㅤㅤ⏝ི ✿ㅤㅤfixations }}$</summary>
   ${\textsf{\color{#7EB3EE}ㅤ𓈒 །∔ ‿◞ ྀིㅤㅤdandy's worldㅤㅤdialtownㅤㅤdsafㅤㅤ}}$ <br>
   ${\textsf{\color{#AEE8F6}ㅤundertaleㅤㅤdeltaruneㅤㅤforsakenㅤㅤhouse mdㅤㅤ}}$ <br>
-  ${\textsf{\color{#AEE8F6}ㅤregretevatorㅤㅤsouth parkㅤㅤamong us show/logicㅤㅤミ ྀ𓏵∗ㅤ}}$
+  ${\textsf{\color{#B1D3F1}ㅤregretevatorㅤㅤsouth parkㅤㅤamong us show/logicㅤㅤミ ྀ𓏵∗ㅤ}}$
+</details>
+</div> 
+
+<div align="center">
+<details closed>
+   <summary>${\textsf{\color{#7B9EF4}ㅤdniㅤㅤ　ྀིᨯㅤㅤ𓏼 ͜͜✚ㅤ}}$</summary>
+  ${\textsf{\color{#7EB3EE}ㅤ ܄   ۪𓍼ㅤㅤbasic dniㅤㅤincest enjoyers/tcoaal fansㅤㅤunder 14ㅤㅤ}}$ <br>
+  ${\textsf{\color{#AEE8F6}ㅤover 20 (iwc)ㅤㅤboundary breakersㅤㅤendosㅤㅤanti tonetagsㅤㅤ}}$ <br>
+  ${\textsf{\color{#B1D3F1}ㅤageplayersㅤㅤtrump/charlie/qwel/maga supportersㅤㅤ ຼ ͜𓐇˚ִִ𓈒ㅤ}}$
 </details>
 </div> 
 
