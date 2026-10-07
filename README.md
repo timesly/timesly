@@ -24,7 +24,8 @@ ${\textsf{\color{#A2CCF1}ㅤ٫٫ ㅤㅤ ˖ Ი𐑼ㅤ۫ㅤ ㅤㅤ ˖ㅤ}}$ <br>
 <details closed>
    <summary>${\textsf{\color{#7B9EF4}ㅤ𓎟𓎟ㅤㅤ⏝ི ✿ㅤㅤfixations }}$</summary>
   ${\textsf{\color{#7EB3EE}ㅤ𓈒 །∔ ‿◞ ྀིㅤㅤdandy's worldㅤㅤdialtownㅤㅤdsafㅤㅤ}}$ <br>
-  ${\textsf{\color{#AEE8F6}ㅤundertaleㅤㅤdeltaruneㅤㅤforsakenㅤㅤhouse mdㅤㅤミ ྀ𓏵∗ㅤ}}$ <br>
+  ${\textsf{\color{#AEE8F6}ㅤundertaleㅤㅤdeltaruneㅤㅤforsakenㅤㅤhouse mdㅤㅤ}}$ <br>
+  ${\textsf{\color{#AEE8F6}ㅤregretevatorㅤㅤsouth parkㅤㅤamong us show/logicㅤㅤミ ྀ𓏵∗ㅤ}}$
 </details>
 </div> 
 
