@@ -20,6 +20,18 @@ ${\textsf{\color{#A2CCF1}ㅤ٫٫ ㅤㅤ ˖ Ი𐑼ㅤ۫ㅤ ㅤㅤ ˖ㅤ}}$ <br>
 ㅤ
 </p>
 
+<div align="center">
+<details closed>
+   <summary>${\textsf{\color{#7B9EF4}ㅤ𓎟𓎟ㅤㅤ⏝ི ✿ㅤㅤfixations }}$</summary>
+  ${\textsf{\color{#7EB3EE}ㅤ𓈒 །∔ ‿◞ ྀིㅤㅤdandy's worldㅤㅤdialtownㅤㅤdsafㅤㅤ}}$ <br>
+  ${\textsf{\color{#AEE8F6}ㅤundertaleㅤㅤdeltaruneㅤㅤforsakenㅤㅤhouse mdㅤㅤ}}$ <br>
+</details>
+</div> 
+
+<p align="center">
+ㅤ
+</p>
+
 <p align="center">
 <img src="https://file.garden/alqc1dqplE9QfpOY/Untitled352_20261006190138.png" width="500">
 </p>
