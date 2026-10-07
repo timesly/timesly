@@ -1,9 +1,9 @@
 <p align="center">
-<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled352_20261006185501.png" width="400">
+<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled352_20261006185501.png" width="500">
 </p>
 
 <p align="center">
-<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled352_20261006193416.png" width="250">
+<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled352_20261006193416.png" width="290">
 </p>
 
 <p align="center">
@@ -21,5 +21,5 @@ ${\textsf{\color{#A2CCF1}ㅤ٫٫ ㅤㅤ ˖ Ი𐑼ㅤ۫ㅤ ㅤㅤ ˖ㅤ}}$ <br>
 </p>
 
 <p align="center">
-<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled352_20261006190138.png" width="400">
+<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled352_20261006190138.png" width="500">
 </p>
