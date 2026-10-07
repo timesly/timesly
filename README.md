@@ -8,7 +8,7 @@
 
 <p align="center">
 ${\textsf{\color{#7EB3EE}ㅤ˖ㅤㅤ ㅤ۫ㅤ Ი𐑼 ˖ ㅤㅤ ٫٫ㅤ}}$ <br>
-${\textsf{\color{#7EB3EE}ㅤcosmoㅤ/ㅤwilsonㅤ}}$ <br>
+${\textsf{\color{#7EB3EE}ㅤcosmoㅤ/ㅤwilsonㅤ/ㅤtennaㅤ}}$ <br>
 ${\textsf{\color{#7EB3EE}ㅤheㅤtheyㅤitㅤ}}$ <br>
 ${\textsf{\color{#7EB3EE}ㅤ٫٫ ㅤㅤ ˖ Ი𐑼ㅤ۫ㅤ ㅤㅤ ˖ㅤ}}$ <br>
 </p>
