@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled352_20261006185501.png" width="550">
+<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled352_20261006185501.png" width="450">
 </p>
 
 <p align="center">
@@ -18,5 +18,5 @@ ${\textsf{\color{#7EB3EE}ㅤ٫٫ ㅤㅤ ˖ Ი𐑼ㅤ۫ㅤ ㅤㅤ ˖ㅤ}}$ <br>
 </p>
 
 <p align="center">
-<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled352_20261006190138.png" width="550">
+<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled352_20261006190138.png" width="450">
 </p>
