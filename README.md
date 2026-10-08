@@ -20,6 +20,18 @@ ${\textsf{\color{#A2CCF1}ㅤ٫٫ ㅤㅤ ˖ Ი𐑼ㅤ۫ㅤ ㅤㅤ ˖ㅤ}}$ <br>
 ㅤ
 </p>
 
+<p align="center">
+<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled350_20261007155933.png" width="400">
+</p>
+
+<p align="center">
+ㅤ
+</p>
+
+<p align="center">
+ㅤ
+</p>
+
 <div align="center">
 <details closed>
    <summary>${\textsf{\color{#7B9EF4}ㅤ𓎟𓎟ㅤㅤ⏝ི ✿ㅤㅤfixations }}$</summary>
@@ -32,11 +44,49 @@ ${\textsf{\color{#A2CCF1}ㅤ٫٫ ㅤㅤ ˖ Ი𐑼ㅤ۫ㅤ ㅤㅤ ˖ㅤ}}$ <br>
 <div align="center">
 <details closed>
    <summary>${\textsf{\color{#7B9EF4}ㅤdniㅤㅤ　ྀིᨯㅤㅤ𓏼 ͜͜✚ㅤ}}$</summary>
-  ${\textsf{\color{#7EB3EE}ㅤ ܄   ۪𓍼ㅤㅤbasic dniㅤㅤincest enjoyers/tcoaal fansㅤㅤunder 14ㅤㅤ}}$ <br>
-  ${\textsf{\color{#AEE8F6}ㅤover 20 (iwc)ㅤㅤboundary breakersㅤㅤendosㅤㅤanti tonetagsㅤㅤ}}$ <br>
-  ${\textsf{\color{#B1D3F1}ㅤageplayersㅤㅤtrump/charlie/qwel/maga supportersㅤㅤ ຼ ͜𓐇˚ִִ𓈒ㅤ}}$
+  ${\textsf{\color{#B1D3F1}ㅤ ܄   ۪𓍼ㅤㅤbasic dniㅤㅤincest enjoyers/tcoaal fansㅤㅤ}}$ <br>
+  ${\textsf{\color{#AEE8F6}ㅤboundary breakersㅤㅤendosㅤㅤanti tonetags + fictionkinsㅤㅤai usersㅤㅤ}}$ <br>
+  ${\textsf{\color{#7EB3EE}ㅤageplayersㅤㅤtrump/charlie/qwel/maga supportersㅤㅤwssㅤㅤ ຼ ͜𓐇˚ִִ𓈒ㅤ}}$ <br>
+   <br>
+  ${\textsf{\color{#B1D3F1}ㅤ ๋   𝅄 𓂃 ⊹ㅤㅤthin iceㅤㅤ◡◡ㅤ}}$ <br>
+  ${\textsf{\color{#AEE8F6}ㅤ♪   ͜͝ ࿐ㅤㅤhelluvaverse fansㅤㅤdark humorㅤㅤyumeshippersㅤㅤ}}$ <br>
+  ${\textsf{\color{#7EB3EE}ㅤalien stage fansㅤㅤ14-/20+ㅤㅤintense ship/character hatersㅤㅤ}}$ <br>
+  ${\textsf{\color{#B1D3F1}ㅤex friendsㅤㅤㅤㅤ ͙͘͡★ ‧₊˚ㅤ}}$ <br>
+   <br>
 </details>
 </div> 
+
+<div align="center">
+<details closed>
+   <summary>${\textsf{\color{#7B9EF4}ㅤ₊˚ʚ ᗢ₊˚ㅤㅤbyiㅤ}}$</summary>
+  ${\textsf{\color{#7EB3EE}ㅤ˚ ༘♡ ⋆｡˚ㅤㅤi'm completely open to making new friendsㅤso bmf !!!ㅤㅤ:]ㅤㅤ}}$ <br>
+  ${\textsf{\color{#AEE8F6}ㅤquite sensitive,ㅤnot the greatest mentally,ㅤand i have an awful memoryㅤㅤ}}$ <br>
+  ${\textsf{\color{#B1D3F1}ㅤusually offtab,ㅤfeel free to whisper if you think im offtab or interact when im active !ㅤㅤ}}$ <br>
+  ${\textsf{\color{#7EB3EE}ㅤif you have questions,ㅤplease ask !!!ㅤespecially if you want to know more abt me ,,ㅤㅤ}}$ <br>
+  ${\textsf{\color{#B1D3F1}ㅤim very strict when it comes to my dni, less strict when its under my "thin ice" section .ㅤ✧.*ㅤㅤ}}$ <br>
+</details>
+</div> 
+
+<p align="center">
+ㅤ
+</p>
+
+<p align="center">
+ㅤ
+</p>
+
+<p align="center">
+<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled350_20261007191359.png" width="400">
+</p>
+
+<div align="center">
+<details closed>
+   <summary>${\textsf{\color{#7B9EF4}ㅤother accountsㅤㅤ　‧̥    ˚̩̩̥  ·੭ㅤ}}$</summary>
+  ${\textsf{\color{#B1D3F1}ㅤ 𓏲 ˖ 𓍯 . ⁺ㅤㅤ@anthonytenna ㅤㅤ@phonehead ㅤㅤ@awesum-party ㅤㅤ@twotasticㅤㅤ.ೃ࿐ㅤ}}$ <br>
+   <br>
+</details>
+</div> 
+
 
 <p align="center">
 ㅤ
