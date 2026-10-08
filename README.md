@@ -3,6 +3,10 @@
 </p>
 
 <p align="center">
+<a href="https://harryfitzgerald.carrd.co/" target="_blank">carrd.co</a>ㅤ ㅤ <a href="https://ribbon-gun.straw.page/" target="_blank">strawpage</a>
+</p>
+
+<p align="center">
 <img src="https://file.garden/alqc1dqplE9QfpOY/Untitled352_20261006193416.png" width="290">
 </p>
 
