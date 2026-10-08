@@ -82,7 +82,7 @@ ${\textsf{\color{#A2CCF1}ㅤ٫٫ ㅤㅤ ˖ Ი𐑼ㅤ۫ㅤ ㅤㅤ ˖ㅤ}}$ <br>
 <div align="center">
 <details closed>
    <summary>${\textsf{\color{#7B9EF4}ㅤother accountsㅤㅤ　‧̥    ˚̩̩̥  ·੭ㅤ}}$</summary>
-   𓏲 ˖ 𓍯 . ⁺ㅤㅤ[@anthonytenna](https://github.com/anthonytenna) ㅤㅤ@phonehead ㅤㅤ@awesum-party ㅤㅤ@twotasticㅤㅤ.ೃ࿐ㅤ
+   𓏲 ˖ 𓍯 . ⁺ㅤ<a href="https://github.com/anthonytenna" target="_blank">@anthonytenna</a> ㅤㅤ<a href="https://github.com/phonehead" target="_blank">@phonehead</a> ㅤㅤ<a href="https://github.com/awesum-party" target="_blank">@awesum-party</a> ㅤㅤ<a href="https://github.com/twotastic" target="_blank">@twotastic</a>ㅤㅤ.ೃ࿐ㅤ
    <br>
 </details>
 </div> 
