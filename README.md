@@ -39,9 +39,9 @@ ${\textsf{\color{#A2CCF1}ㅤ٫٫ ㅤㅤ ˖ Ი𐑼ㅤ۫ㅤ ㅤㅤ ˖ㅤ}}$ <br>
 <div align="center">
 <details closed>
    <summary>${\textsf{\color{#7B9EF4}ㅤ𓎟𓎟ㅤㅤ⏝ི ✿ㅤㅤfixations }}$</summary>
-  ${\textsf{\color{#7EB3EE}ㅤ𓈒 །∔ ‿◞ ྀིㅤㅤdandy's worldㅤㅤdialtownㅤㅤdsafㅤㅤ}}$ <br>
+  ${\textsf{\color{#7EB3EE}ㅤ𓈒 །∔ ‿◞ ྀིㅤㅤdandy's worldㅤㅤdialtownㅤㅤdsafㅤㅤtboiㅤㅤ}}$ <br>
   ${\textsf{\color{#AEE8F6}ㅤundertaleㅤㅤdeltaruneㅤㅤforsakenㅤㅤhouse mdㅤㅤ}}$ <br>
-  ${\textsf{\color{#B1D3F1}ㅤregretevatorㅤㅤsouth parkㅤㅤamong us show/logicㅤㅤミ ྀ𓏵∗ㅤ}}$
+  ${\textsf{\color{#B1D3F1}ㅤregretevatorㅤㅤsouth parkㅤㅤmewgenicsㅤㅤミ ྀ𓏵∗ㅤ}}$
 </details>
 </div> 
 
