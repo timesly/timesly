@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-࿐. *. ⋆ㅤ ㅤ <a href="https://harryfitzgerald.carrd.co/" target="_blank">carrd.co</a>ㅤ ㅤ <a href="https://ribbon-gun.straw.page/" target="_blank">strawpage</a>ㅤ ㅤ <a href="https://tv-world.atabook.org/" target="_blank">atabook</a>ㅤ ㅤ ˚ · • ༄
+࿐. *. ⋆ㅤ ㅤ <a href="https://harryfitzgerald.carrd.co/" target="_blank">carrd.co</a>ㅤ ㅤ <a href="https://ribbon-gun.straw.page/" target="_blank">strawpage</a>ㅤ ㅤ <a href="https://wheeljack.atabook.org/" target="_blank">atabook</a>ㅤ ㅤ ˚ · • ༄
 </p>
 
 <p align="center">
@@ -12,7 +12,7 @@
 
 <p align="center">
 ${\textsf{\color{#7B9EF4}ㅤ˖ㅤㅤ ㅤ۫ㅤ Ი𐑼 ˖ ㅤㅤ ٫٫ㅤ}}$ <br>
-${\textsf{\color{#7EB3EE}ㅤ⊹ ࣪ ˖ㅤcosmoㅤ/ㅤwilsonㅤ/ㅤtennaㅤ ּּ𓏼 ֯ ‎   ⑅ㅤ}}$ <br>
+${\textsf{\color{#7EB3EE}ㅤ⊹ ࣪ ˖ㅤwheeljackㅤ/ㅤwilsonㅤ/ㅤtennaㅤ ּּ𓏼 ֯ ‎   ⑅ㅤ}}$ <br>
 ${\textsf{\color{#AEE8F6}ㅤ 𓈒𑙗𐂯♪‧₊˚ㅤㅤheㅤㅤtheyㅤㅤitㅤㅤ𓈒𓏲 ׁ 　 𓈒 ݁　}}$ <br>
 ${\textsf{\color{#B1D3F1}ㅤ𓈒۫　ׅ ✧ㅤtransmascㅤㅤgayㅤㅤsingleㅤ˖ ࣪ ⊹ㅤ}}$ <br>
 ${\textsf{\color{#C6E2F5}ㅤֺּׅ𓏽⑅ㅤ7teenㅤㅤengㅤ༉‧₊˚.ㅤ}}$ <br>
