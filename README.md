@@ -12,7 +12,7 @@
 
 <p align="center">
 ${\textsf{\color{#7B9EF4}ㅤ˖ㅤㅤ ㅤ۫ㅤ Ი𐑼 ˖ ㅤㅤ ٫٫ㅤ}}$ <br>
-${\textsf{\color{#7EB3EE}ㅤ⊹ ࣪ ˖ㅤwheeljackㅤ/ㅤwilsonㅤ/ㅤtennaㅤ ּּ𓏼 ֯ ‎   ⑅ㅤ}}$ <br>
+${\textsf{\color{#7EB3EE}ㅤ⊹ ࣪ ˖ㅤcamrynㅤ/ㅤwilsonㅤ/ㅤtennaㅤ ּּ𓏼 ֯ ‎   ⑅ㅤ}}$ <br>
 ${\textsf{\color{#AEE8F6}ㅤ 𓈒𑙗𐂯♪‧₊˚ㅤㅤheㅤㅤtheyㅤㅤitㅤㅤ𓈒𓏲 ׁ 　 𓈒 ݁　}}$ <br>
 ${\textsf{\color{#B1D3F1}ㅤ𓈒۫　ׅ ✧ㅤtransmascㅤㅤgayㅤㅤsingleㅤ˖ ࣪ ⊹ㅤ}}$ <br>
 ${\textsf{\color{#C6E2F5}ㅤֺּׅ𓏽⑅ㅤ7teenㅤㅤengㅤ༉‧₊˚.ㅤ}}$ <br>
