@@ -1,23 +1,5 @@
 <p align="center">
-<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled352_20261006185501.png" width="500">
-</p>
-
-<p align="center">
-࿐. *. ⋆ㅤ ㅤ <a href="https://harryfitzgerald.carrd.co/" target="_blank">carrd.co</a>ㅤ ㅤ <a href="https://ribbon-gun.straw.page/" target="_blank">strawpage</a>ㅤ ㅤ <a href="https://tv-world.atabook.org/" target="_blank">atabook</a>ㅤ ㅤ ˚ · • ༄
-</p>
-
-<p align="center">
-<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled352_20261006193416.png" width="290">
-</p>
-
-<p align="center">
-${\textsf{\color{#7B9EF4}ㅤ˖ㅤㅤ ㅤ۫ㅤ Ი𐑼 ˖ ㅤㅤ ٫٫ㅤ}}$ <br>
-${\textsf{\color{#7EB3EE}ㅤ⊹ ࣪ ˖ㅤcamrynㅤ/ㅤwilsonㅤ/ㅤtennaㅤ ּּ𓏼 ֯ ‎   ⑅ㅤ}}$ <br>
-${\textsf{\color{#AEE8F6}ㅤ 𓈒𑙗𐂯♪‧₊˚ㅤㅤheㅤㅤtheyㅤㅤitㅤㅤ𓈒𓏲 ׁ 　 𓈒 ݁　}}$ <br>
-${\textsf{\color{#B1D3F1}ㅤ𓈒۫　ׅ ✧ㅤtransmascㅤㅤgayㅤㅤsingleㅤ˖ ࣪ ⊹ㅤ}}$ <br>
-${\textsf{\color{#C6E2F5}ㅤֺּׅ𓏽⑅ㅤ7teenㅤㅤengㅤ༉‧₊˚.ㅤ}}$ <br>
-${\textsf{\color{#6688E5}ㅤ𓏵‧₊˚ㅤbmfㅤㅤw2iㅤ/ㅤintㅤㅤc+hㅤ Იᰍ。ᣟ݂ 𓏼ㅤ}}$ <br>
-${\textsf{\color{#A2CCF1}ㅤ٫٫ ㅤㅤ ˖ Ი𐑼ㅤ۫ㅤ ㅤㅤ ˖ㅤ}}$ <br>
+<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled453_20261123175512.png" width="550">
 </p>
 
 <p align="center">
@@ -25,11 +7,25 @@ ${\textsf{\color{#A2CCF1}ㅤ٫٫ ㅤㅤ ˖ Ი𐑼ㅤ۫ㅤ ㅤㅤ ˖ㅤ}}$ <br>
 </p>
 
 <p align="center">
-<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled350_20261007155933.png" width="400">
+<a href="https://hits.sh/github.com/timesly/"><img alt="Hits" src="https://hits.sh/github.com/timesly.svg?style=plastic&label=train%20whistles&extraCount=99&color=ba875e&labelColor=a37550"/></a>
+</p>
+<p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&pause=1000&color=C48A59&width=435&lines=That's+the+best+place+for+tea%2C+aboard+a+train." alt="Typing SVG" width="450" /></a>
+</p>
+
+<p align="center">
+<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled457_20261124014800%20(1).png" width="350">
 </p>
 
 <p align="center">
 ㅤ
+</p>
+
+<p align="center">
+${\textsf{\color{#9E714B}◡◡　　dyle　/　camryn　/　anthony}}$ <br>
+${\textsf{\color{#9E714B}trans ftm　　eng　　7teen}}$ <br>
+${\textsf{\color{#9E714B}bmf　　w2i　　iwc}}$ <br>
+${\textsf{\color{#9E714B}basic dni }}$
 </p>
 
 <p align="center">
@@ -38,36 +34,12 @@ ${\textsf{\color{#A2CCF1}ㅤ٫٫ ㅤㅤ ˖ Ი𐑼ㅤ۫ㅤ ㅤㅤ ˖ㅤ}}$ <br>
 
 <div align="center">
 <details closed>
-   <summary>${\textsf{\color{#7B9EF4}ㅤ𓎟𓎟ㅤㅤ⏝ི ✿ㅤㅤfixations }}$</summary>
-  ${\textsf{\color{#7EB3EE}ㅤ𓈒 །∔ ‿◞ ྀིㅤㅤdandy's worldㅤㅤdialtownㅤㅤdsafㅤㅤtboiㅤㅤ}}$ <br>
-  ${\textsf{\color{#AEE8F6}ㅤundertaleㅤㅤdeltaruneㅤㅤforsakenㅤㅤhouse mdㅤㅤ}}$ <br>
-  ${\textsf{\color{#B1D3F1}ㅤtransformersㅤㅤsouth parkㅤㅤmewgenicsㅤㅤミ ྀ𓏵∗ㅤ}}$
-</details>
-</div> 
-
-<div align="center">
-<details closed>
-   <summary>${\textsf{\color{#7B9EF4}ㅤdniㅤㅤ　ྀིᨯㅤㅤ𓏼 ͜͜✚ㅤ}}$</summary>
-  ${\textsf{\color{#B1D3F1}ㅤ ܄   ۪𓍼ㅤㅤbasic dniㅤㅤincest enjoyers/tcoaal fansㅤㅤ}}$ <br>
-  ${\textsf{\color{#AEE8F6}ㅤboundary breakersㅤㅤendosㅤㅤanti tonetags + fictionkinsㅤㅤai usersㅤㅤ}}$ <br>
-  ${\textsf{\color{#7EB3EE}ㅤageplayersㅤㅤtrump/charlie/qwel/maga supportersㅤㅤwssㅤㅤ ຼ ͜𓐇˚ִִ𓈒ㅤ}}$ <br>
-   <br>
-  ${\textsf{\color{#B1D3F1}ㅤ ๋   𝅄 𓂃 ⊹ㅤㅤthin iceㅤㅤ◡◡ㅤ}}$ <br>
-  ${\textsf{\color{#AEE8F6}ㅤ♪   ͜͝ ࿐ㅤㅤhelluvaverse fansㅤㅤdark humorㅤㅤyumeshippersㅤㅤ}}$ <br>
-  ${\textsf{\color{#7EB3EE}ㅤalien stage fansㅤㅤ14-/20+ㅤㅤintense ship/character hatersㅤㅤ}}$ <br>
-  ${\textsf{\color{#B1D3F1}ㅤex friendsㅤㅤㅤㅤ ͙͘͡★ ‧₊˚ㅤ}}$ <br>
-   <br>
-</details>
-</div> 
-
-<div align="center">
-<details closed>
-   <summary>${\textsf{\color{#7B9EF4}ㅤ₊˚ʚ ᗢ₊˚ㅤㅤbyiㅤ}}$</summary>
-  ${\textsf{\color{#7EB3EE}ㅤ˚ ༘♡ ⋆｡˚ㅤㅤi'm completely open to making new friendsㅤso bmf !!!ㅤㅤ:]ㅤㅤ}}$ <br>
-  ${\textsf{\color{#AEE8F6}ㅤquite sensitive,ㅤnot the greatest mentally,ㅤand i have an awful memoryㅤㅤ}}$ <br>
-  ${\textsf{\color{#B1D3F1}ㅤusually offtab,ㅤfeel free to whisper if you think im offtab or interact when im active !ㅤㅤ}}$ <br>
-  ${\textsf{\color{#7EB3EE}ㅤif you have questions,ㅤplease ask !!!ㅤespecially if you want to know more abt me ,,ㅤㅤ}}$ <br>
-  ${\textsf{\color{#B1D3F1}ㅤim very strict when it comes to my dni, less strict when its under my "thin ice" section .ㅤ✧.*ㅤㅤ}}$ <br>
+   <summary>${\textsf{\color{#7B9EF4}✿　　interests}}$</summary>
+  ${\textsf{\color{#9E714B}　*dandy's world,　bad things,　dialtown,　dsaf, }}$ <br>
+  ${\textsf{\color{#9E714B}　*utdr, sfawtde,　aregect,　*regretevator,　*transformers,　}}$ <br>
+  ${\textsf{\color{#9E714B}　*tmirb,　fnaf,　among us show,　among us logic,　*forsaken,　}}$ <br>
+  ${\textsf{\color{#9E714B}　phighting,　object shows,　cav,　south park,　endacopia,　pokemon,　}}$ <br>
+  ${\textsf{\color{#9E714B}　solarballs,　*tboi,　*mewgenics,　steven universe,,　*look outside}}$ <br>
 </details>
 </div> 
 
@@ -76,26 +48,25 @@ ${\textsf{\color{#A2CCF1}ㅤ٫٫ ㅤㅤ ˖ Ი𐑼ㅤ۫ㅤ ㅤㅤ ˖ㅤ}}$ <br>
 </p>
 
 <p align="center">
-ㅤ
+<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled451_20261123171038.png" width="450">
 </p>
 
 <p align="center">
-<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled350_20261007191359.png" width="400">
+${\textsf{\color{#9E714B}scientists reveal the }}$ @garbagenoise
 </p>
-
-<div align="center">
-<details closed>
-   <summary>${\textsf{\color{#7B9EF4}ㅤother accountsㅤㅤ　‧̥    ˚̩̩̥  ·੭ㅤ}}$</summary>
-   𓏲 ˖ 𓍯 . ⁺ㅤ<a href="https://github.com/anthonytenna" target="_blank">@anthonytenna</a> ㅤㅤ<a href="https://github.com/phonehead" target="_blank">@phonehead</a> ㅤㅤ<a href="https://github.com/awesum-party" target="_blank">@awesum-party</a> ㅤㅤ<a href="https://github.com/twotastic" target="_blank">@twotastic</a>ㅤㅤ.ೃ࿐ㅤ
-   <br>
-</details>
-</div> 
-
 
 <p align="center">
 ㅤ
 </p>
 
 <p align="center">
-<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled352_20261006190138.png" width="500">
+<a href="https://harryfitzgerald.carrd.co/" target="_blank">carrd.co</a> 　 　 <a href="https://ribbon-gun.straw.page/" target="_blank">strawpage</a> 　 　 <a href="https://tv-world.atabook.org/" target="_blank">atabook</a>
+</p>
+
+<p align="center">
+ㅤ
+</p>
+
+<p align="center">
+<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled453_20261123175518.png" width="550">
 </p>
