@@ -56,14 +56,6 @@ ${\textsf{\color{#b28951}basic dni }}$
 </p>
 
 <p align="center">
-${\textsf{\color{#9E714B}scientists reveal the }}$ <a href="https://github.com/garbagenoise" target="_blank">@garbagenoise</a>
-</p>
-
-<p align="center">
-ㅤ
-</p>
-
-<p align="center">
 <a href="https://harryfitzgerald.carrd.co/" target="_blank">carrd.co</a> 　 　 <a href="https://ribbon-gun.straw.page/" target="_blank">strawpage</a> 　 　 <a href="https://tv-world.atabook.org/" target="_blank">atabook</a>
 </p>
 
