@@ -52,10 +52,6 @@ ${\textsf{\color{#9E714B}basic dni }}$
 </p>
 
 <p align="center">
-${\textsf{\color{#9E714B}scientists reveal the }}$ @garbagenoise
-</p>
-
-<p align="center">
 ㅤ
 </p>
 
