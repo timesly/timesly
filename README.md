@@ -22,7 +22,7 @@
 </p>
 
 <p align="center">
-${\textsf{\color{#9E714B}◡◡　　dyle　/　camryn　/　anthony}}$ <br>
+${\textsf{\color\large{#9E714B}◡◡　　dyle　/　camryn　/　anthony}}$ <br>
 ${\textsf{\color{#a87b52}trans ftm　　eng　　7teen}}$ <br>
 ${\textsf{\color{#af8251}bmf　　w2i　　iwc}}$ <br>
 ${\textsf{\color{#b28951}basic dni }}$
