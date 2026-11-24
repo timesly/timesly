@@ -23,9 +23,9 @@
 
 <p align="center">
 ${\textsf{\color{#9E714B}◡◡　　dyle　/　camryn　/　anthony}}$ <br>
-${\textsf{\color{#9E714B}trans ftm　　eng　　7teen}}$ <br>
-${\textsf{\color{#9E714B}bmf　　w2i　　iwc}}$ <br>
-${\textsf{\color{#9E714B}basic dni }}$
+${\textsf{\color{#a87b52}trans ftm　　eng　　7teen}}$ <br>
+${\textsf{\color{#af8251}bmf　　w2i　　iwc}}$ <br>
+${\textsf{\color{#b28951}basic dni }}$
 </p>
 
 <p align="center">
@@ -34,12 +34,12 @@ ${\textsf{\color{#9E714B}basic dni }}$
 
 <div align="center">
 <details closed>
-   <summary>${\textsf{\color{#7B9EF4}✿　　interests}}$</summary>
-  ${\textsf{\color{#9E714B}　*dandy's world,　bad things,　dialtown,　dsaf, }}$ <br>
-  ${\textsf{\color{#9E714B}　*utdr, sfawtde,　aregect,　*regretevator,　*transformers,　}}$ <br>
-  ${\textsf{\color{#9E714B}　*tmirb,　fnaf,　among us show,　among us logic,　*forsaken,　}}$ <br>
+   <summary>${\textsf{\color{#D8B366}✿　　interests}}$</summary>
+  ${\textsf{\color{#b28951}　*dandy's world,　bad things,　dialtown,　dsaf, }}$ <br>
+  ${\textsf{\color{#af8251}　*utdr, sfawtde,　aregect,　*regretevator,　*transformers,　}}$ <br>
+  ${\textsf{\color{#a87b52}　*tmirb,　fnaf,　among us show,　among us logic,　*forsaken,　}}$ <br>
   ${\textsf{\color{#9E714B}　phighting,　object shows,　cav,　south park,　endacopia,　pokemon,　}}$ <br>
-  ${\textsf{\color{#9E714B}　solarballs,　*tboi,　*mewgenics,　steven universe,,　*look outside}}$ <br>
+  ${\textsf{\color{#966747}　solarballs,　*tboi,　*mewgenics,　steven universe,,　*look outside}}$ <br>
 </details>
 </div> 
 
@@ -49,6 +49,14 @@ ${\textsf{\color{#9E714B}basic dni }}$
 
 <p align="center">
 <img src="https://file.garden/alqc1dqplE9QfpOY/Untitled451_20261123171038.png" width="450">
+</p>
+
+<p align="center">
+ㅤ
+</p>
+
+<p align="center">
+${\textsf{\color{#9E714B}scientists reveal the }}$ <a href="https://github.com/garbagenoise" target="_blank">@garbagenoise</a>
 </p>
 
 <p align="center">
