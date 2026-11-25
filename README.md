@@ -40,6 +40,8 @@ ${\textsf{\color{#b28951}basic dni }}$
   ${\textsf{\color{#a87b52}　*tmirb,　fnaf,　among us show,　among us logic,　*forsaken,　}}$ <br>
   ${\textsf{\color{#9E714B}　phighting,　object shows,　cav,　south park,　endacopia,　pokemon,　}}$ <br>
   ${\textsf{\color{#966747}　solarballs,　*tboi,　*mewgenics,　steven universe,　*look outside,　hetalia}}$ <br>
+  ${\textsf{\color{#9E714B}　*marvel,　wonderland.jar,　slime rancher,　tangle tower,　funhouse,　pvz}}$
+  ${\textsf{\color{#a87b52}　** 　 i do NOT support any problematic creators 　 **　}}$
 </details>
 </div> 
 
